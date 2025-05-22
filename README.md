@@ -6,5 +6,4 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on Projects
 - 🤔 I’m looking for help with to Optimize and Learn Coding
 - 📫 How to reach me: 24.01905@maua.br
-- 😄 Pronouns: Trans Male in Process
 - ⚡ Fun fact: 🦄 Unicorn Lover
